@@ -1,2 +1,0 @@
-# world-power
-medisch vernietigingkamp
